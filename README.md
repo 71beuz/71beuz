@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @71beuz
 - 👀 I’m interested in investments
-- 🌱 I’m currently learning Medium
+- 🌱 I’m currently learning trading
 - 💞️ I’m looking to collaborate on financial advices
 - 📫 How to reach me ...
 
