@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @71beuz
 - 👀 I’m interested in investments / HOME STYLE & HOME MADE
 - 🌱 I’m currently learning trading / investing
-- 💞️ I’m looking to collaborate on research
+- 💞️ I’m looking to collaborate on improvement tools
 - 📫 How to reach me ...
 
 <!---
