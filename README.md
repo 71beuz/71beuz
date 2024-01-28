@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @71beuz
 - 👀 I’m interested in investments / VC
-- 🌱 I’m currently learning trading / investing / crypto
+- 🌱 I’m currently learning trading / investing / cryptos
 - 💞️ I’m looking to collaborate on crypto launching projects
 - 📫 How to reach me ...
 
